@@ -1,5 +1,5 @@
 
-# Estrogonofe de frango
+# Strogonofe de frango
 ## Clássico dos clássicos e com passo a passo à prova de erro.
 ### O segredo para o sabor do molho e a carne macia está em dourar direitinho os cubos de frango.
 #### Por isso, atenção aos detalhes!
